@@ -1,1 +1,1 @@
-![Uploading calc.jpg…]()
+![Uploading calculator.png…]()
